@@ -38,7 +38,7 @@ I am a 3rd-year Computer Engineering student at Bursa Technical University. I en
 
 ### 📫 Let's Connect
 
-*   **LinkedIn:** [linkedin.com/in/zeynepkaya]([https://linkedin.com/in/KULLANICI-ADIN](https://www.linkedin.com/in/zeynep-kaya-325898298/))
+*   **LinkedIn:** [(https://www.linkedin.com/in/zeynep-kaya-325898298/)]
 *   **Email:** [zeynep0408kaya@gmail.com]
 
 ---
